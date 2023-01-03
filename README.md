@@ -1,1 +1,1 @@
-# rsschool-cv
+https://boyarka12.github.io/rsschool-cv/cv
